@@ -12,4 +12,5 @@ It's nice 🤨 to have a look at [**periodic table**](https://en.wikipedia.org/w
 
 ***
 
-![JXnK7F5CpiPpU64rLa8tUM](https://user-images.githubusercontent.com/17825804/219295197-18d67b5f-e30c-4727-8891-edafbb1b6190.jpg)
+![d63f1by-2d2489f1-b310-48be-9267-bff206601608](https://github.com/user-attachments/assets/68ea405b-6b4d-4a73-a124-7e53e75c5ead)
+
