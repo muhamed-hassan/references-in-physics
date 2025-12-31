@@ -2,10 +2,6 @@
 
 ***
 
-**`Education phase:`** [Secondary School](https://en.wikipedia.org/wiki/Secondary_school)
-
-***
-
 Please visit the [**`link`**](https://github.com/muhamed-hassan/references-in-physics/wiki/Science-clubs) for more non-sense jokes 💩 🤡 🏳️‍🌈
 
 ***
